@@ -5,7 +5,6 @@
 - 💬 Ask me about whatever you like on [linkedin](https://www.linkedin.com/in/raftaar1191/)
 - 📫 How to reach me: raftaar1191@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: used to bake cakes for money
 
 ⚠️ Recruiters: Don't contact me, I will ignore you ⚠️
 
